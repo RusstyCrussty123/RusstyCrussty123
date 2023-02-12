@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+This account is inactive.
+My new account is: https://github.com/jah255
+
 <!--
 **RusstyCrussty123/RusstyCrussty123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
